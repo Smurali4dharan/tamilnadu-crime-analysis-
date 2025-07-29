@@ -30,4 +30,4 @@ This dashboard offers visual insights into how crimes have evolved over time and
 ---
 
 ## 📬 Contact
-Feel free to reach out on [LinkedIn](your-linkedin-profile) for feedback or collaboration!
+Feel free to reach out on [LinkedIn](www.linkedin.com/in/muralidharan-s-86b4b8360e) for feedback or collaboration!
